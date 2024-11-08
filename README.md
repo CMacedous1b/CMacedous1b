@@ -1,0 +1,2 @@
+- Oi, eu sou a CMacedous1b, conhecida como Sol Macedo.
+- Eu tenho 16 anos, gosto de musica e cristais
